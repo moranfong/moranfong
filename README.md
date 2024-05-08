@@ -1,5 +1,5 @@
 ### FMoran 👋  
-😄 你好 ~ 我是FMoran，生活在中国。现在  
+😄 你好 ~ 我是FMoran，目前生活在中国，是一名在校大学生。「Moran」这个名字没有什么特殊含义，只是初中随口叫了个词就一直用到现在。  
 你可以在我的[网站](https://fmoran.me)了解我。[EN](https://fmoran.me/en)，[JP](https://fmoran.me/jp)，[Now](https://fmoran.me/now)，[Blog](https://fmoran.me/blog)。  
 你可以发 📫 [邮件](i@fmoran.me)与我聊聊。  
 
