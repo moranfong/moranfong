@@ -1,7 +1,9 @@
-### FMoran 👋  
-😄 你好 ~ 我是FMoran，目前生活在中国，是一名在校大学生。我爱网络上每一个有趣的灵魂，是他们让这个虚拟的网络世界变得更加美丽。    
-你可以在我的[博客](https://fmoran.me)了解我。[English Blog](https://en.fmoran.me)，[Now Page](https://fmoran.me/now)，🐘[Mastodon](https://mastodon.social/@FMoran)。  
-你可以发 📫 [邮件](mailto:i@fmoran.me)或在 🪧 [留言板](https://fmoran.me/comment)与我联系。  
+### Moran 👋  
+😄 Hi ~ I'm Moran, currently living in China and a current university student. I love every interesting soul on the internet, they are the ones who make this virtual online world more beautiful.    
+You can get to know me at [Blog](https://blog.moran.im). [BearBlog](https://fmoran.me), [Now Page](https://fmoran.me/now).  
+You can contact me at 📫 [email](mailto:fong@moran.im).  
+
+Translated with DeepL.com (free version)
 
 Please do not hold me to account for any foolish opinions expressed herein. Hold me to account only for the smart things I say.  
 
